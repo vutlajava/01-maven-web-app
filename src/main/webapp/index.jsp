@@ -4,7 +4,7 @@
 
 <a href="https://ashokitech.com/online-training-schedules">Click on this code</a>
   
-  <h2> Call Us : + 91 - 99 85 39 66 77 / 99 85 29 66 77</h2>
+ 
   
   <h3> Ofc Location : Ameerpet, Hyderbad </h3>
 
